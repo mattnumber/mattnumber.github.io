@@ -2,6 +2,7 @@
 Children's book available now! Associated merch and more coming soon!
 
 🚀 [Rocket Dog puppet show](https://youtu.be/IjXitrB6tKo) 🐶 
+
 🐶 [Rocket Dog music video](https://youtu.be/ZfxE-f2dMzw) 🚀
 
 
