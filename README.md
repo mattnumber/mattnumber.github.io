@@ -1,5 +1,9 @@
 # Rocket Dog
-Children's book available now! Puppet show, music videos, associated merch, and more coming soon!
+Children's book available now! Associated merch and more coming soon!
+
+🚀 [Rocket Dog puppet show](https://youtu.be/IjXitrB6tKo) 🐶 
+🐶 [Rocket Dog music video](https://youtu.be/ZfxE-f2dMzw) 🚀
+
 
 <p align="center">
   <img src="https://github.com/mattnumber/mattnumber.github.io/blob/master/20180708%20RD%20cover.jpg" width="450" height="450" title="Rocket Dog!!!">
